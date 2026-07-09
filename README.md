@@ -1,4 +1,4 @@
-## Dharshan Hemantha Kumar
+## Darshan
 
 **Systematic & proprietary-firm trader — building automated, statistically-validated trading systems.**
 
